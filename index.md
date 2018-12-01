@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Who took my mountain dew
 
-I'm glad you are here. I plan to talk about ...
+Sorry were out of Sprite, is 7up ok?
